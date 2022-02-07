@@ -14,7 +14,7 @@
 
 - 🤝 I’m looking for help with **Nodejs**
 
-- 👨‍💻 All of my projects are available at [https://hikigaya113.github.io/my_portfolio/](https://hikigaya113.github.io/my_portfolio/)
+- 👨‍💻 All information about me is available at [https://hikigaya113.github.io/my_portfolio/](https://hikigaya113.github.io/my_portfolio/)
 
 - 💬 Ask me about **data structure, C++**
 
