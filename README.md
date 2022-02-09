@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **bishtrahul073@gmail.com**
 
-- 📄 want to go through my resume [https://drive.google.com/file/d/1CpTnlQpng17ErQRNJ0gtG-eXaM76Qj2d/view?usp=sharing](https://drive.google.com/file/d/1X3yIKVEIN_o1PfzqXa1wHVbpwAnDUeqY/view?usp=sharing)
+- 📄 want to go through my resume [https://drive.google.com/file/d/1CpTnlQpng17ErQRNJ0gtG-eXaM76Qj2d/view?usp=sharing](https://drive.google.com/file/d/1CpTnlQpng17ErQRNJ0gtG-eXaM76Qj2d/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
